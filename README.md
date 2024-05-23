@@ -41,12 +41,14 @@ Berikut contoh-contoh link phising yang sering dijumpai:
 
 
 
+![image001](https://github.com/mrezairawan27/literasidigital/assets/169583496/7a9bb3ae-930e-4de5-9469-d4a5c86a5616)
 
 
 
+<img width="279" alt="image002" src="https://github.com/mrezairawan27/literasidigital/assets/169583496/9b0c9e9a-d4f2-49f5-8e55-2085f399977c">
 
 
-
+![image003](https://github.com/mrezairawan27/literasidigital/assets/169583496/4f3a3f36-6c3f-484c-b0f6-595242aa7b25)
 
 
 
